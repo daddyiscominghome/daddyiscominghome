@@ -7,6 +7,4 @@ i love my husband so much ok? btw im aroace
 # LOVE U ALL
 # bouns >:)
 # there are my oc's i love them and i could say i need to make more lore of them ig :O
-![My Image](https://raw.githubusercontent.com/daddyiscominghome/daddyiscominghome/main/Untitled439_20251218204937.png)
-![My Image](https://raw.githubusercontent.com/daddyiscominghome/daddyiscominghome/main/Untitled439_20251218205625.png)
-![My Image](https://raw.githubusercontent.com/daddyiscominghome/daddyiscominghome/main/Untitled439_20251218210918.png)
+![My Image](https://raw.githubusercontent.com/daddyiscominghome/daddyiscominghome/main/be5c865c2c4d59e45f453881c49f9ac3(1).jpg
