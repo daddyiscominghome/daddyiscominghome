@@ -6,5 +6,5 @@ i love my husband so much ok? btw im aroace
 ![My Image](https://raw.githubusercontent.com/daddyiscominghome/daddyiscominghome/main/07712fcb5593bfcc479a31b426df636f.jpg)
 # LOVE U ALL
 # bouns >:)
-# there are my oc's i love them and i could say i need to make more lore of them ig 
+# I love eternal sugar cookie:3
 ![My Image](https://raw.githubusercontent.com/daddyiscominghome/daddyiscominghome/main/37af033dbdf58713d874432b2430ba9b.jpg)
