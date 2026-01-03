@@ -6,7 +6,7 @@ i love my husband so much ok? btw im aroace
 I'm not rude person so pls don't be rude and the only language I know is English and Arabic,when I'm afk don't be shy just int with me or whisper to me^_^ you will see me in evry pony but the github address is still don't worry!I can be your friend ofc but when I talk to you completely so I can be sure! but just pls I can't talk to boys for my own reasons just girls ok?
 ![My Image](https://raw.githubusercontent.com/daddyiscominghome/daddyiscominghome/main/3124606397fe208c874be9b11c797ed9.jpg)
 # LOVE U ALL
-# bouns >:)
+# ★~★~★~★~★~★~★~★~★~★~★~★~★
 # I love My pookie 7n7
 ![My Image](https://raw.githubusercontent.com/daddyiscominghome/daddyiscominghome/main/8159d87f3e6b487864bbf13c0a6c076f.jpg)
 ![My Image](https://raw.githubusercontent.com/daddyiscominghome/daddyiscominghome/main/af1e00debeb5eaf2393775c14af9d163.jpg)
