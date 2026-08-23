@@ -1,3 +1,2 @@
 #   ࣬  ໒꒰ྀིっ˕ -｡꒱ྀི১    
-![My Image](https://raw.githubusercontent.com/daddyiscominghome/daddyiscominghome/main/992e958703488bde0e2196d827c38c03.jpg)
-# ૮ ․ ․ ྀིა ♬⋆.˚⋆ 𐙚 ̊.࣪ ִֶָ ☾.
+![My Image](https://raw.githubusercontent.com/daddyiscominghome/daddyiscominghome/main/dc26955f340b640b973e317fd4b3a4f6.jpg)
