@@ -1,4 +1,4 @@
 #  ⋆. 𐙚 ˚ଘ(੭*ˊᵕˋ)੭* ੈ♡‧₊˚
 ꒰｡- ᴗ - ｡꒱ ᶻzᶻzᶻz﹒﹒
-![My Image](https://raw.githubusercontent.com/daddyiscominghome/daddyiscominghome/main/9dc447488fe0f64492347a128d094269.jpg)
+![My Image](https://raw.githubusercontent.com/daddyiscominghome/daddyiscominghome/main/429d3d2ef6e60b202275d2d750bd8b32.jpg)
 # ⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆
