@@ -1,3 +1,3 @@
 ![My Image](https://raw.githubusercontent.com/daddyiscominghome/daddyiscominghome/main/ANIMITIONOK.gif)
-![My Image](https://raw.githubusercontent.com/daddyiscominghome/daddyiscominghome/main/39d473c0f8b7b8c42e02ccc9253a7b50.gif)
+![My Image](https://raw.githubusercontent.com/daddyiscominghome/daddyiscominghome/main/7bd7140d2eee11148f5085c4c1d2c93a.jpg)
 # ⋆. 𐙚 ˚｡･:*:･ﾟ★,｡･:*:･ﾟ☆
